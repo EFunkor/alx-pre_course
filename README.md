@@ -1,1 +1,1 @@
-My first readme
+Amazing is great
