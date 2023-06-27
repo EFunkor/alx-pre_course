@@ -1,1 +1,1 @@
-Amazing is great
+Amazing is greater
